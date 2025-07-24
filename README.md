@@ -1,1 +1,0 @@
-# summer-tech-2025
